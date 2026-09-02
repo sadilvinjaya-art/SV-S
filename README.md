@@ -1,2 +1,2 @@
 # SVS
-Be great
+Be grea
